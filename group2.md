@@ -46,6 +46,9 @@ https://waterstand.jp/products.html?utm_source=gl&utm_medium=cpc&utm_campaign=g_
 # 第二目標
 水とその他特産品を用いた白馬村の活性化
 ## 他の情報
+スタバが「捨てない容器」ということで、ステンレス製の容器を貸し出すサービスを始めた。
+このサービスを利用すると、２２円ほどお得になる。
+今はまだ試験段階。
 
 
 

@@ -45,3 +45,7 @@ https://waterstand.jp/products.html?utm_source=gl&utm_medium=cpc&utm_campaign=g_
 ・コールマンの上位互換である「snow peak」など
 # 第二目標
 水とその他特産品を用いた白馬村の活性化
+## 他の情報
+
+
+

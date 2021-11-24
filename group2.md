@@ -1,4 +1,8 @@
 # 白馬プロジェクト
+## ウォータースタンド社製品
+https://waterstand.jp/products.html?utm_source=gl&utm_medium=cpc&utm_campaign=g_brand_others&utm_content=brand_others&utm_term=g_sitelink0000018&gclid=CjwKCAiA1aiMBhAUEiwACw25MZv3fUPDxasuVKKIGvQl8I8Le34S7Gw2o8u0LXzFvwneQmpt_Fe2GhoCrSQQAvD_BwE
+ウォータースタンド社　ウォーターサーバー製品
+
 ## これをやる意義とは（第１目標）
 この企画をやる意義は何なのか？
 

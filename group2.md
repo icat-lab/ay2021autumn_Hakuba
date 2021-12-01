@@ -61,7 +61,7 @@ https://waterstand.jp/products.html?utm_source=gl&utm_medium=cpc&utm_campaign=g_
 このサービスを利用すると、２２円ほどお得になる。
 今はまだ試験段階。
 
-#今後やるべきこと
+# 今後やるべきこと
 
 水とリンクさせた観光資源を考える
 

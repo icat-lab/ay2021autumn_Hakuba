@@ -61,7 +61,8 @@
 
 # 今後やるべきこと
 
-水とリンクさせた観光資源を考える
+・水とリンクさせた観光資源を考える
+・高校生が自発的に水を飲もうとするには？動機づけは？
 
 ## ウォータースタンド社製品
 https://waterstand.jp/products.html?utm_source=gl&utm_medium=cpc&utm_campaign=g_brand_others&utm_content=brand_others&utm_term=g_sitelink0000018&gclid=CjwKCAiA1aiMBhAUEiwACw25MZv3fUPDxasuVKKIGvQl8I8Le34S7Gw2o8u0LXzFvwneQmpt_Fe2GhoCrSQQAvD_BwE

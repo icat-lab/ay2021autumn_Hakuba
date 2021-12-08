@@ -51,9 +51,9 @@
 - [（白馬村観光局）キーホルダー、Tシャツ、手ぬぐい、スクイズボトル、マスク](https://hakubaoriginal.shop/)
 - [（スノーピークランドステーション）ステンレス製のコップ、水筒](https://www.snowpeak.co.jp/landstation/hakuba/facility/store/)
 - [（ふるさと納税）NORTHFACE　Tシャツ、キャップ](https://search.rakuten.co.jp/search/mall/%E3%81%B5%E3%82%8B%E3%81%95%E3%81%A8%E7%B4%8D%E7%A8%8E+%E7%99%BD%E9%A6%AC%E6%9D%91+%E3%83%8E%E3%83%BC%E3%82%B9%E3%83%95%E3%82%A7%E3%82%A4%E3%82%B9/)
-- [(ふるさと納税)　ミルキークイーン10kg、スキー場1日券、登山用ザック、SUY（水）など](https://www.furusato-tax.jp/city/product/20485)
+- [（ふるさと納税)　ミルキークイーン10kg、スキー場1日券、登山用ザック、SUY（水）など](https://www.furusato-tax.jp/city/product/20485)
 
-#### ネット資料
+#### ネットにあった資料
 [白馬村における観光の現状と課題](https://www.vill.hakuba.lg.jp/material/files/group/2/03_73905883.pdf)
 
 ## ④カフェへの宣伝方法

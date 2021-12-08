@@ -72,6 +72,10 @@
 
 ・高校生が自発的に水を飲もうとするには？動機づけは？
 
+# 村中にプロジェクトを発表
+・賛同してくれる企業や店にはリターンとしてウォーターサーバー設置など…
+・店側はお店のモノの割引など（高校生以下にはもっと割引）
+
 ## ウォータースタンド社製品
 https://waterstand.jp/products.html?utm_source=gl&utm_medium=cpc&utm_campaign=g_brand_others&utm_content=brand_others&utm_term=g_sitelink0000018&gclid=CjwKCAiA1aiMBhAUEiwACw25MZv3fUPDxasuVKKIGvQl8I8Le34S7Gw2o8u0LXzFvwneQmpt_Fe2GhoCrSQQAvD_BwE
 ウォータースタンド社　ウォーターサーバー製品

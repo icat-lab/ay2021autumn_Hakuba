@@ -5,8 +5,7 @@
 自分たちの班ではウォーターサーバーを設置しない方針で進める
 水道の周りをデザインしてみんなが飲みやすい環境を作る　参考：愛媛空港
 
-![みかん](https://user-images.githubusercontent.com/91592893/143198255-f5371ead-090f-428b-800e-f48e6984ec74.jpg)
-https://mainichi.jp/articles/20170721/k00/00m/040/057000c
+
 
 
 

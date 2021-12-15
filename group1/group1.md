@@ -108,8 +108,8 @@
 - 白馬マウンテンビーチ
 - 白馬マウンテンハーバー
 
-https://www.nsd-hakuba.jp/hakuba-summer/must-spot.html
-　　　　　　↓
+[夏の白馬村観光スポット紹介](https://www.nsd-hakuba.jp/hakuba-summer/must-spot.html)
+
 ### イベント開催地
 - 汗をかく→登山、温泉施設、キャンプ場、アウトドア施設
 - 有名スポットで知名度アップ→白馬マウンテンビーチ、白馬マウンテンハーバー

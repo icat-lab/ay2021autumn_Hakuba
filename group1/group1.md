@@ -23,6 +23,7 @@
 →スキーなどのアウトドアの体験目的が多い中、温泉や景観を楽しむ人も多い。
 
 [冬の白馬村観光スポット紹介](https://www.vill.hakuba.nagano.jp/activity/%E3%82%A6%E3%82%A3%E3%83%B3%E3%82%BF%E3%83%BC%E3%82%A2%E3%82%AF%E3%83%86%E3%82%A3%E3%83%93%E3%83%86%E3%82%A3/)
+
 [夏の白馬村観光スポット紹介](https://www.nsd-hakuba.jp/hakuba-summer/must-spot.html)
 
 #### 観光客の意見

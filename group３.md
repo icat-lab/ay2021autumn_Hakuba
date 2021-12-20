@@ -38,7 +38,7 @@
 <img width="643" alt="Screenshot 2021-12-20 225333" src="https://user-images.githubusercontent.com/91593050/146778658-750bdb7a-9735-421f-9447-a7234d48e08f.png">
 <img width="621" alt="Screenshot 2021-12-20 230146" src="https://user-images.githubusercontent.com/91593050/146779025-15f5d6d1-ef65-461f-be66-f3f97bd17405.png">
 
-電子より紙の方が理解と記憶がより深くという結果が出た。
+電子より紙の方が理解と記憶により深く作用するという結果が出た。
 
 
 ## パンフレットの内容等に関して

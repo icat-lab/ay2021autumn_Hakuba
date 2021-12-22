@@ -12,7 +12,7 @@
 
 ・Attention：認知・注意
 
-・Interes：興味・関心
+・Interest：興味・関心
 
 ・Search：検索
 

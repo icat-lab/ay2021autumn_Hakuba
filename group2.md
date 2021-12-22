@@ -96,4 +96,4 @@ https://waterstand.jp/products.html?utm_source=gl&utm_medium=cpc&utm_campaign=g_
 
 ･ twitter→＠hakuba_happo
 
-･ インスタ→＠
+･ インスタ→＠hakubalife

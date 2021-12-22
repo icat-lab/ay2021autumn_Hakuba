@@ -92,4 +92,6 @@ https://waterstand.jp/products.html?utm_source=gl&utm_medium=cpc&utm_campaign=g_
 ウォータースタンド社　ウォーターサーバー製品
 
 
+## SNS
 
+･ twitter→＠hakuba_

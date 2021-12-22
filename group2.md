@@ -43,7 +43,7 @@
 このイメージを逆手に取る。→高級な水が白馬でがぶがぶ飲める＆そんな高級な水ってどんな水なの？と興味を持ってもらえる
 
 
-## 水以外での白馬の魅力
+## 水以外での白馬の魅力（SNSを活用する）
 ・春夏秋冬でそれぞれ違った魅力がある →自然探勝園（春～秋）、登山（夏） 、おたり新そば祭り（秋）、スキー（冬）
 
 ・おしゃれなスタバ
@@ -67,7 +67,9 @@
 自分のマイボトルでも可。白馬の他のカフェでも適用できるのでは。
 
 コロナ禍で外国人の旅行客が減り、例年よりも早くオープン
-そして、今シーズンから中学生以下のリフト料金が無料になった
+そして、今シーズンから中学生以下のリフト料金が無料になった（今シーズンだけかも）
+
+特典付きのスタンプラリー（スキー場）→マイボトル持参のきっかけにする
 
 
 # 今後やるべきこと
@@ -88,3 +90,6 @@
 ## ウォータースタンド社製品
 https://waterstand.jp/products.html?utm_source=gl&utm_medium=cpc&utm_campaign=g_brand_others&utm_content=brand_others&utm_term=g_sitelink0000018&gclid=CjwKCAiA1aiMBhAUEiwACw25MZv3fUPDxasuVKKIGvQl8I8Le34S7Gw2o8u0LXzFvwneQmpt_Fe2GhoCrSQQAvD_BwE
 ウォータースタンド社　ウォーターサーバー製品
+
+
+
